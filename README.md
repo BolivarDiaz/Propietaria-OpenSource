@@ -1,1 +1,0 @@
-# Propietaria-OpenSource
